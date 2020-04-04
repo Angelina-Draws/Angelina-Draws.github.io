@@ -23,9 +23,3 @@ The drawing above is a original character I had to model in my advanced anmation
 https://tinyurl.com/Duel-Sided
 
 The drawing above is a emotional self reflection on how as a individual there is always the good and the bad side to them. Essentially two sides of the same coin. Depending on the situation at hand either side could play the leading role. A strong bond with a close family memeber will most likely be on the light or good side. While on the other hand a once trustworthy realtionship is broken would have the dark or bad side in response. 
-
-### Samples of My Cosplays
-
-#### About My Cosplays
-
-As a hobby I cosplay. A type of art that ivolves the transfomation of the body through makeup, clothing, contacts and wigs. I cosplay many different characters from different shows, . Mostly from japanese animations or anime. 
