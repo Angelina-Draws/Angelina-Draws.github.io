@@ -12,3 +12,6 @@ I have not been in a work environment that requires my artistic abilities. Altho
 
 ### Samples of My Art
 
+https://github.com/Angelina-Draws/Angelina-Draws.github.io/blob/master/20200404_011549.jpg
+
+The drawing above is a original character I had to model in my advanced anmation class during my senior year of high school. My teacher had given us an assignment to create a character to model. The requirments having been, a two legged creature with distinguishable facial features, that being the mouth, nose and eyes. I modeled my character in the 3D animation program named Maya 2019.
