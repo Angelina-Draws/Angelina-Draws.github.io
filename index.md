@@ -12,6 +12,10 @@ I have not been in a work environment that requires my artistic abilities. Altho
 
 ### Samples of My Art
 
-https://github.com/Angelina-Draws/Angelina-Draws.github.io/blob/master/20200404_011549.jpg
+https://tinyurl.com/Oliver-Acosta
 
 The drawing above is a original character I had to model in my advanced anmation class during my senior year of high school. My teacher had given us an assignment to create a character to model. The requirments having been, a two legged creature with distinguishable facial features, that being the mouth, nose and eyes. I modeled my character in the 3D animation program named Maya 2019.
+
+
+
+The drawing above is a emotional self reflection on how as a individual there is always the good and the bad side. Essentially two sides of the same coin. Depending on the situation at hand either side could play the leading role. A strong bond with a close family memeber will most likely be on the light or good side. While on the other hand a once trustworthy realtionship is broken would have teh dark or bad side in response. 
