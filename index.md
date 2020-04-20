@@ -14,7 +14,7 @@ I have not been in a work environment that requires my artistic abilities. Altho
 
 I tend to do voluntary work for others. I help with what I can at work, at times it may be with helping out a co-worker gather materials or help fix a problem that arrives without the thought of getting anything in return. I help the team with problem solving and quick yet effective solutions to problems that arrive.
 
-### Samples of My Drawn Art
+# Samples of My Drawn Art
 
 ## Traditional Pieces
 
